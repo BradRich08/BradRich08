@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @BradRich08
-- 👀 I’m interested in music and basketball
+- 👀 I’m interested in cybersecurity, music, and basketball
 - 🌱 I’m currently learning cybersecurity
 - 💞️ I’m looking to collaborate on new projects
 - 📫 My email is bradrichardson90@outlook.com
